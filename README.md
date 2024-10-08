@@ -1,2 +1,3 @@
 # rompible
-- ojito con lo que estas pensando catalina correa
+⋅˚₊‧ ୨୧ ‧₊˚ 🧸ྀི⋅ ESTA es la linea que va a quedar. ⋆.˚✮🎧✮˚.⋆ ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
+- hola
